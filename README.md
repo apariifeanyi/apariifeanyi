@@ -31,9 +31,10 @@ I am a results-driven professional with over 10 years of experience in finance, 
 ---
 
 ## 📫 How to Reach Me
-- 📧 Email: apariifeanyi@yahoo.com  
+- 📧 Email: apariifeanyi@yahoo.com /ifeanyi@wilsonandassociatesconsulting.org 
 - 📞 Phone/WhatsApp: +2348134485760  
-- 📞 Alternate Line: +2347069534195  
+- 📞 Alternate Line: +2347069534195
+- LinkedIn: https://www.linkedin.com/in/apariifeanyi
 
 ---
 
