@@ -38,7 +38,7 @@ I am a results-driven professional with over 10 years of experience in finance, 
 ---
 
 ## 📄 Resume
-[Download My Resume](https://github.com/apariifeanyi/apariifeanyi/files/10085873/APARI_IFEANYI_MOST_RECENT_RESUME_6829464.pdf)
+[Download My Resume]file:///C:/Users/HP/Downloads/Apari%20Ifeanyi%20CV.ABB.pdf
 
 ---
 
