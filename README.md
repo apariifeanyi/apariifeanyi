@@ -39,7 +39,7 @@ I am a results-driven professional with over 10 years of experience in finance, 
 ---
 
 ## 📄 Resume
-[Download My Resume]file:///C:/Users/HP/Downloads/Apari%20Ifeanyi%20CV.ABB.pdf
+file:///C:/Users/HP/Downloads/Apari%20Ifeanyi%20CV.ABB.pdf
 
 ---
 
